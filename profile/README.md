@@ -1,1 +1,1 @@
-<img src="BAFR-UK_partners%20and%20funders.jpg" alt="drawing" width="600"/>
+<img src="BAFR-UK_partners%20and%20funder%20(5%20across).jpg" alt="drawing"/>
